@@ -7,6 +7,9 @@ Stanford Online
 
 https://www.youtube.com/playlist?list=PLoROMvodv4rO5jY6RA1eFVcLVY2kJU_EL
 
+Last updated on May 20, 2021
+
+
 1
 
 58:53
